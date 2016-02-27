@@ -1,2 +1,2 @@
 # goodbye-world
-'E's just zis zapasatory, you know?
+I am devoid of confidence and self-worth.
